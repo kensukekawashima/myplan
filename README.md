@@ -35,3 +35,4 @@
 - to practice drawing a copy 
 - to find out my week points
 - Dont waste times with cell phone
+- read a book in two weeks
